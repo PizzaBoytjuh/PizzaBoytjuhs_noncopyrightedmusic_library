@@ -1,2 +1,2 @@
 # PizzaBoytjuhs_noncopyrightedmusic_library
-just some non copytighted music!
+THIS IS ALL ROYALTY FREE MUSIC, IF YOU SEE THAT ANY MUSIC #IS COPYRIGHTED THEN MAKE AN ISSUE
